@@ -1,4 +1,5 @@
-# ↓ ↓ ↓ KOMMENDE TERMINE ↓ ↓ ↓
+# ↓ ↓ ↓ KOMMENDE TERMINE ↓ ↓ ↓ 
++++ in Juli/August Spontan ~3 Tage Berlin/München/Hamburg, Infos per DM           
 27.07.2022 | Düsseldorf | Vier Linden | [Kunst gegen Bares](https://www.facebook.com/events/309873741292614 )                            
 09.08.2022 | Düsseldorf | Vier Linden | [Punchline: Comedy Show](https://www.facebook.com/events/521856709491977)           
 11.08.2022 | Köln | Gaffel am Dom | [Punchline: Comedy Show](https://www.facebook.com/events/607039687420017)             
